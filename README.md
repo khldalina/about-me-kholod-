@@ -1,1 +1,1 @@
-# about-me-kholod-
+# My name is Alina, and I'm a well-versed photographer. My skills in photo editing, lighting and other photography concepts help me craft visually appealing pieces of art. I value using optimal lighting circumstances and landscapes to capture unique moments that fulfill my customer's specifications.
